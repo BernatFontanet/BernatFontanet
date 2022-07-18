@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BernatFontanet
+- 👀 I’m interested in 3D vision, 
+- 🌱 I’m currently studying telecommunications at UPC (Universitat Politècnica de Catalunya)
+- 📫 How to reach me ... Just write at bernat.fontanet@gmail.com !😃
